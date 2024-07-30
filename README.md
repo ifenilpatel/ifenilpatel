@@ -33,7 +33,7 @@ Feel free to connect with me or reach out if you'd like to discuss potential col
 
 - **LinkedIn:** [https://www.linkedin.com/in/ifenilpatel]
 - **Email:** [fens98@gmail.com]
-- **Email:** [patel_fenil98@gmail.com]
+- **Email:** [patel_fenil98@yahoo.in]
 
 Thanks for visiting my profile, and I look forward to connecting with you!
 
